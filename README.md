@@ -1,6 +1,6 @@
 
 
-### ‎<p align="center"> <b>Smy socials
+### ‎<p align="center"> <b>my socials
 ### ‎<p align="center"> <b>[ATA](https://raincid.atabook.org)  [X](https://x.com/insteroid)</b></p>
 <p align="center"> <img src="https://i.pinimg.com/originals/80/9c/52/809c52bce47f98c54418cbc0d7a347e5.gif" </p>
 
