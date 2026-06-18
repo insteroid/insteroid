@@ -8,8 +8,7 @@
 ### ‎<p align="center"> <b>[ata](https://raincid.atabook.org) | [x](https://x.com/insteroid) | [carrd](https://raincid.carrd.co) | [strawpage](https://raincid.straw.page/) <b>
 <br>
 <br>
-<p align="center"><img src="<img width="435" height="429" alt="blur_edges (6)" src="https://github.com/user-attachments/assets/3630d605-36df-4dba-89b2-667cca786e92" />
-"</p>
+<p align="center"><img src="https://github.com/user-attachments/assets/ed7db164-fa62-4ae8-b940-a67b5a6ccbdc"</p>
   <br>
 <p align="left"> bye there
 
