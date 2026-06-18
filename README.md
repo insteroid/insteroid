@@ -1,3 +1,4 @@
+<img width="200" height="200" alt="blur_edges (2)" src="https://github.com/user-attachments/assets/a27ad683-89f8-40f1-858e-de5a4a5b4fcf" />
 <br>
 <p align="left"> <b>hi there</b>
 <br>
