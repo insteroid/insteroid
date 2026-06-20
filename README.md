@@ -11,4 +11,3 @@
 <p align="center"><img width="200" height="200" alt="blur_edges (2)" src="https://github.com/user-attachments/assets/a27ad683-89f8-40f1-858e-de5a4a5b4fcf" /></p>
   <br>
 <p align="left"> bye there
-
